@@ -7,4 +7,4 @@ I’m interested in developing  foundations for a modular approach to a culture 
 -  and building virtual agents for communication using Microsoft Power Platform. 
 -💡In the near future, I look forward crafting data projects that empowers social/cultural/geological narratives that address community information needs. 
 - 💞️ I’m looking to collaborate on proejects promoting data literacy, careers in data science, and providing educational resources for emerging and transitioning professionals.
-- 📫 How to reach me ... Tierranicole.T@memphis.edu
+- 📫 How to reach me ... Tierranicole.Taylor@memphis.edu or @becomingdrbomb on all socials. 
